@@ -1,0 +1,1 @@
+kendimce bir şeyler deniyorum.
